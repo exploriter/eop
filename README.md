@@ -1,2 +1,2 @@
 # ecologyofpractices.com
-List of practices helping to cultivate an ecology of practices.
+List of holistic life practices helping to cultivate an ecology of practices.
